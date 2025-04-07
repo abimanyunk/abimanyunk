@@ -30,6 +30,6 @@ I completed my BE in Computer Science Engineering at M Kumarasamy College Of Eng
 
 ## Contact Information
 
-- **Email**: abimanyunsk@gmail.com
+- **Email**: abimanyukaruppusamy@outlook.com
 - **LinkedIn**: [Abimanyu N K](https://www.linkedin.com/in/abimanyu-n-k/)
 ---
